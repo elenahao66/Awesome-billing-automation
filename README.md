@@ -90,3 +90,10 @@ As a professional, your time is worth far more than the hourly rate of manual sp
 Stop doing manually what software can automate in seconds. Put your client invoicing on autopilot today and never chase a payment manually again.
 
 👉 **[Get Started with BillMatik Now](https://jmp9.com/b35f8141)**
+
+
+## Also Check Out: Free Invoice Templates
+
+Looking for free, ready-to-use invoice templates without the commitment? Check out:
+
+- [CleanInvoice](https://toolkasa.com) — free invoice templates for 15 service trades, no signup, works offline
